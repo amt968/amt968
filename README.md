@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @amt968 (call me Amir)
+- 👀 I’m interested in codding, digital art, traveling, music and about... everything :D
+- 🌱 I’m currently learning to code Java, JavaScript and many other
+- 💞️ I’m looking to collaborate on roblox, discord or any other cool place.
+- 📫 How to reach me: my email amirrezataheri8054@gmail.com
